@@ -42,7 +42,7 @@ This Service may contain links to other sites. If you click on a third-party lin
 
 Changes to This Privacy Policy
 I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page.
-This policy is effective as of 2022-05-19
+This policy is effective as of 2022-07-30
 
 Contact Us
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at happylifefoundationgroup@gmail.com.
